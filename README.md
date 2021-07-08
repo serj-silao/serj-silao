@@ -3,6 +3,7 @@
 - 🧑🏻‍💻 Currently working in Forty Degree Celsius, Inc. as iOS Developer.
 - 📖 Passionate on learning new techniques on code etiquettes
 - 🧶 Love to do crafts
+- 🎮 Balancing work, life, and gaming. 
 
 
 ## Currently learning
